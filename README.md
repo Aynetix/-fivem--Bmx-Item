@@ -2,7 +2,10 @@
 [fivem]-Bmx-Item
 
 Mon discord:https://discord.gg/ZASZb6RyRW
-![migna srip acier](https://github.com/Aynetix/-fivem--Bmx-Item/assets/158204955/43cc41cb-27eb-4174-9ff5-6d8e7b80ef25)
+
+
+![migna bmx](https://github.com/Aynetix/-fivem--Bmx-Item/assets/158204955/96c6335a-98b6-4fcd-a9c5-f2fb31d54f54)
+
 
 
 
